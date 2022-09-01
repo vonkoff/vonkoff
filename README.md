@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there 👋 THIS IS A ROUGH DRAFT. But, it's free flow from the ol' noggin so enjoy
 
 
 
